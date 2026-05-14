@@ -1,4 +1,4 @@
-#  
+#  stealth one tap Scripts is the best one tap Script, featuring auto-heal and auto-sell. Safe and powerful for all your needs.
 
 
 
